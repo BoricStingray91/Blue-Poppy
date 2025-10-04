@@ -1,1 +1,1 @@
-The resource pack I made to make poppy's blue.
+The resource pack I made to make poppies blue.
